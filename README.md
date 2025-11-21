@@ -1,1 +1,0 @@
-# qatar-recyclopidia2.0
